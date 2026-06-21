@@ -1,4 +1,4 @@
-# ⚡ Hi, I'm Ciranjeevi D (aka Nagraj)
+# ⚡ Hi, I'm Ciranjeevi Dashnamoorthy
 
 **AI & Software Developer | Competitive Programming Enthusiast**
 
